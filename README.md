@@ -15,4 +15,4 @@ O mesmo vem de uma serie de  aprimoramentos  dês de 2017 , e acumulou os seguin
 
 - Winter Challenge , 2018 onde fomos 24º lugar de 73 participantes;
 
-![](seguidorVersao2.jpeg)
+![](seguidorVersao2.jpg)
